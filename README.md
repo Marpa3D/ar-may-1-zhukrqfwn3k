@@ -1,1 +1,0 @@
-# ar-may-1-zhukrqfwn3k
